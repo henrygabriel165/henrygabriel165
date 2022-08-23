@@ -3,3 +3,4 @@
 - 🌱 Atualmente estou aprendendo, Técnico de Informática.
 - 👥 Trabalho em equipe.
 - 🎮 GAMER. 🕹️👾
+- 🖥️2°TIA. ⌨️🖱️
