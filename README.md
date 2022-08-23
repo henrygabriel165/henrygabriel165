@@ -1,0 +1,5 @@
+- 👋 Oi, Eu sou o @henrygabriel165.
+- 👀 O meu interesse em elaborar tecnologias futuras para facilitar a humanidade.
+- 🌱 Atualmente estou aprendendo, Técnico de Informática.
+- 👥 Trabalho em equipe.
+- 🎮 GAMER. 🕹️👾
